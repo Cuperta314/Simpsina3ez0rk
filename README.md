@@ -1,1 +1,0 @@
-# Simpsina3ez0rk
